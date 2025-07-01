@@ -1,4 +1,4 @@
-# mothbent.github.io <p style="font-family: Times New Roman, sans-serif;">
+
 <pre> MOTHBENT//
       MOTHSPEW</pre>
  
