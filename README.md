@@ -10,13 +10,13 @@
 
 
    who among us has not killed, i mean think of it the pause before the crawling the flying the end-it-all when we have a choice, really have a choice between killing, going back, and yet raise the lifted weight , i'm staring at her mouth now the light is a hovering glow atop spiraling pineboard painted black and splintering thick next to the mattress, her wings are burnt rouge digging a deep hole, two torn parachutes fraying and I'm staring at her mouth and thinking how i could squash it between my thumb and first knuckle if i wanted to , if i really wanted and what's worse is i don't know how to handle that question, the answer the pause between the flapping of the wings, the melody to her movements, her clawed-shut wingedness , and people are behind bars for this, and when she looks like that , her chin pointing ever-towards that dotted light glowing dim it's hard for me to imagine her going on living , if she moves i think i'll do it , it seems like surely her last moments , her waiting for me there memorializing the last bright light of her life, the moment like morning when nothing has yet been ruined , nothing has gone stale, the moment triumphant still flooded with hopeful prayer, kissing and the look of someone on the precipice of something, i don't just mean something, i mean the very key to their existence, a forgotten answer unbroken, a dreamscaped shadow looking back and im thankful for this , her showing me exactly what i've been missing in living, without this moment , her slowing to silence frozen in windless room, her sorry mouth stuffed with sky, and next to her the crosshatched lace runner J's grandmother brought here at least three decembers ago , the way that laughter echoed through the spliced-open pine beams earlier that evening , the way we could not think of the documentary's title , turning it in our minds for hours, unable to confirm without phone signal what it was for the record or when we'd last truly tasted mysterious sweet namelessness like this, unsure if it was a poltergeist or really only the tilted ceiling fan knocking , until at last we stumbled upon it in simple syntax and after all that it was nothing at all , nothing beyond two words <i>The Scheme </i> how simple it all was , to kill or to not kill was not even a question on our minds she was probably flying somewhere in small circles , flying somehow ovalesque or sitting still, oblivious
-  <pre>
+
 ii. 
 and I find her there in the morning , propped between soapstone and knotted pine wall smoothed and smoothed again , her mouth closed now and legs bowed I see her and think now she is tempting fate, her gaze cast upward again towards that two way hanging street that is the mirror , her eyes not giving anything away,
 her eyes two frozen volcanic lakes, wings stained cathedrals, mouth like a made bed, blankets turning, a widening vacuum, patting down and down the walls,
 and I see her there thinking buzzing nothing , cast upwards towards the bare yellow bulb embedded into pine , what could she be thinking I think I know nothing about a species' thought unless it is my own and even then I have no way to bridge our existence , cannot imagine the first thought upon waking the memories that clog , can only see a version of myself replicated and replicated , unable to shake or cut the corded light , a cracked seam so close I can almost touch her but we are not touching , my meekness inside of her meekness, and only this instant, this exact flash.
 
-</pre>
+
 
 iii.
   
@@ -25,10 +25,10 @@ and I see her there , face down in the white porcelain bowl , her legs splayed o
 
 she does not think through it's gurgling, naming the  droplets or mulling over osmosis functions , the molecular make up of water or what is it h20 the suffocating weight of names does not crush her overlaid silken wings or it would , she'd buckle under the weight of it, all the knowing all  the falling downwards through thousands of pounds of pine and porcelain and wet cloth and plumbing and electrical wire , not even knowing the names for it she's perched , hovers almost above the surface not knowing how close to drowning falling crushed by the weight of it all , just my waiting.
 
-<pre>
+
 iv.
 and I see her there now , in my mind's cape, inside of me like a memory, like a burning lake, and I want to know what'd be like to touch her likeness, reach out softly, but I can't , incantory being , legs like an infant ,(her sorry mouth stuffed with sky), there's no asking where she's going , even this is a placeholder
-</pre>
+
 v.
 and I see her there in the driveway, her is any, a slate morning turned blank, the whole sky in her mouth, her mouth is any, I see her stone-stopped, no reflection, unsophisticated, unwanting still after the moon"s turning , gone, blank , here I imagine to smell hyacinths, think nothing , unlike me who is always thinking attempting to name unnameable , the oaks along the hunting house, the endless well, she's unnamed too but I insist on naming but for now settle on her, her is anyone, though inevitably ill make her someone, a thought without blinking, an eyeful of sorries, the whole year in her wings, wider than three hundred spaceships staring back, although I'm grateful I was born in concentration, yesterday i_______
 
@@ -64,11 +64,10 @@ her wide eyes waiting,
 tongue an airbag(snare/flare)
 water flows between us
 
-<pre>
+
 xii.
 
 and I see her there, drunk on light again, swirling incandescent diving towards the brass mirror upholding its luminary weight unafraid, as the washer's whirring drowns out coyotesong or blurs it, maybe, in an uncertain way that makes me whisper thank you, for its mystery, its unending want, how it makes me want nightweight, moments when you can't be sure if it's sound or touch you're hearing, like tumbling water and mate-cry, all good morning and he backed out of the drive last night but drove into the house, and how many times can we relive this and saying sorry doesn't mean that someone will hear it -- may god bless your tears, may she drink them
-</pre>
 
 xiii.
 
