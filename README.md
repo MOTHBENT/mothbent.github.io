@@ -108,3 +108,6 @@ breath between us
 
 and i see her there, mouth crumbling, hands poised like a doll's, fingertips smudged like a traintrack railtie
 </pre>
+
+
+© Lex Wolfe 10.24
