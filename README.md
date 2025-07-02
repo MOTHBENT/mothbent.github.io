@@ -1,8 +1,8 @@
 
-<pre> MOTHBENT//
-      MOTHSPEW</pre>
+<pre> MOTHBENT/
+      /MOTHSPEW</pre>
  
-<pre> {in response to Jon Fosse's <i>Septology</i>}</pre>
+<pre> {responds to Jon Fosse's <i>Septology</i>}</pre>
 
 
   
