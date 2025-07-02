@@ -2,7 +2,7 @@
 <pre> MOTHBENT/
       /MOTHSPEW</pre>
  
-<pre> {responds to Jon Fosse's <i>Septology</i>}</pre>
+<pre> {in response to Jon Fosse's <i>Septology</i>}</pre>
 
 
   
@@ -110,4 +110,4 @@ and i see her there, mouth crumbling, hands poised like a doll's, fingertips smu
 </pre>
 
 
-© alexis wolfe 2024
+                                                © alexis wolfe 2024
